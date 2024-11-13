@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kolvee
+- 👀 I’m interested in Sports, gaming and coding
+- 🌱 I’m currently learning web devlopment
+- 📫 How to reach me kolvee067@gmail.com
+- ⚡ Fun fact: i have 3 cats and 2 dogs
