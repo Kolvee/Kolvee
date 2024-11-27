@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Kolvee
 - 👀 I’m interested in Sports, gaming and coding
 - 🌱 I’m currently studying web devlopment at Business College Helsinki
-- 📫 How to reach me kolvee067@gmail.com
 - ⚡ Fun fact: i have 3 cats and 2 dogs
